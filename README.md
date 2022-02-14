@@ -13,5 +13,5 @@ Is making its seeds
 The wind 
 Is shaking its leaves 
 
-It's nice for us to stand without words
+It's ineffable for us to stand without words
 ```
